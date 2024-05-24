@@ -1,7 +1,7 @@
 # Hello, Earthling! I'm João Victor, Welcome to my profile \ (•◡•) / <br />
 ## About me...
 
-👋 Greetings! I was born in 2002, in João Pessoa, the easternmost city in the americas;
+👋 Greetings! I was born in 2002, in João Pessoa, in the northeastern Brazil;
 
 🎓 I'm currently studying Computer Science at UFPB, in my hometown, since 2019;
 
