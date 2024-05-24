@@ -7,8 +7,8 @@
 
 💻 Programming skills with C, C++, C#, Python, Haskell and HTML;
 
-🎵 Fanatic about music and musical instruments at all;
+🎵 Lover of music and musical instruments at all;
 
-🎮 A mythical video games enjoyer; 
+🎮 A video games enthusiast since I was a kid; 
 
 📚 Native Brazilian Portuguese speaker, fluent Spanish, Italian and English speaker, and Intermediate German speaker.
