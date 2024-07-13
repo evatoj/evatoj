@@ -11,4 +11,4 @@
 
 🎮 A video games enthusiast since I was a kid; 
 
-📚 Native Brazilian Portuguese speaker, fluent Spanish, Italian and English speaker, and Intermediate German speaker.
+📚 Native Brazilian Portuguese speaker, advanced Spanish, Italian and English speaker, and intermediate German speaker. 
